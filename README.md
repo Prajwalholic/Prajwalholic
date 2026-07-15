@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'am currently studying<br>learning<br>in progress  
+iam currently studying<br>learning<br>in progress  
 
 
 ## 🌐 Socials:
